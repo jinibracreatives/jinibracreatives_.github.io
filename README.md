@@ -1,1 +1,1 @@
-# jinibracreatives_.github.io
+# jinibracreatives.github.io
